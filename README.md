@@ -1,0 +1,2 @@
+- 👋 Sup im Snipe
+- Gonna try and learn cool stuff
